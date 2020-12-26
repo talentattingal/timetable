@@ -1,1 +1,0 @@
-# talenttimetable.github.io
